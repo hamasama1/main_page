@@ -1,0 +1,1 @@
+# hamasama100.github.io
